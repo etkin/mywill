@@ -18,6 +18,13 @@ Goes to my best friend.
 
 Goes to Nazlı
 
-**Green Starbuck Cup**
+
+**Green Starbucks Cup**
 
 Goes to Gizem
+
+
+**my leptop**
+
+Goes to my cousin
+
