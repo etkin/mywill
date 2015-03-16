@@ -1,4 +1,4 @@
-﻿# mywill
+# mywill
 
 **HI-FI**
 
@@ -24,7 +24,7 @@ Goes to Nazlı
 Goes to Gizem
 
 
-**my leptop**
+**my laptop**
 
 Goes to my cousin
 
